@@ -1,0 +1,1 @@
+# lojaembelezada.manu
